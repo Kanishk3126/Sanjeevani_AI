@@ -1,1 +1,1 @@
-# Sanjeevani_AI
+# Sanjeevani-ai
